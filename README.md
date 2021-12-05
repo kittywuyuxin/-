@@ -2,9 +2,9 @@
 # -《心流》第一章 重新审视幸福
 
 ##  -成功，就像幸福一样，是无法追求的
-Yet we cannot reach happiness by consciously searching for it. “Ask yourself whether you are happy,” said J. S. Mill, “and you cease to be so.” It is by being fully involved with every detail of our lives, whether good or bad, that we find happiness, not by trying to look for it directly. Viktor Frankl, the Austrian psychologist, summarized it beautifully in the preface to his book Man’s Search for Meaning: “Don’t aim at success—the more you aim at it and make it a target, the more you are going to miss it. For success, like happiness, cannot be pursued; it must ensue…as the unintended side-effect of one’s personal dedication to a course greater than oneself.”
+We cannot reach happiness by consciously searching for it. “Ask yourself whether you are happy,” said J. S. Mill, “and you cease to be so.” It is by being fully involved with every detail of our lives, whether good or bad, that we find happiness, not by trying to look for it directly. Viktor Frankl, the Austrian psychologist, summarized it beautifully in the preface to his book Man’s Search for Meaning: “Don’t aim at success—the more you aim at it and make it a target, the more you are going to miss it. For success, like happiness, cannot be pursued; it must ensue…as the unintended side-effect of one’s personal dedication to a course greater than oneself.”
 
-然而，我们无法通过有意识地寻找幸福而获得幸福。"密尔（J. S. Mill）说：“问你自己是否幸福，你就不会再幸福了。”正是通过充分参与我们生活的每一个细节，无论是好的还是坏的，我们才找到了幸福，而不是通过直接寻找幸福才获得幸福。奥地利心理学家维克多·弗兰克尔（Viktor Frankl）在他的《人类对意义的探索》一书的序言中对此作了很好的总结：“不要瞄准成功，你越是瞄准它，把它作为目标，你就越是会错过它。因为成功，就像幸福一样，是无法追求的；它必须是......作为个人致力于比自己更伟大的事业所产生的意外的副产品。”
+我们无法通过有意识地寻找幸福而获得幸福。"密尔（J. S. Mill）说：“问你自己是否幸福，你就不会再幸福了。”正是通过充分参与我们生活的每一个细节，无论是好的还是坏的，我们才找到了幸福，而不是通过直接寻找幸福才获得幸福。奥地利心理学家维克多·弗兰克尔（Viktor Frankl）在他的《人类对意义的探索》一书的序言中对此作了很好的总结：“不要瞄准成功，你越是瞄准它，把它作为目标，你就越是会错过它。因为成功，就像幸福一样，是无法追求的；它必须是......作为个人致力于比自己更伟大的事业所产生的意外的副产品。”
 
 
 ##  -单纯享乐不能获得最优体验
